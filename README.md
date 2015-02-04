@@ -1,6 +1,6 @@
 Youtubr-Twitter-HiveMC
 ======================
 
-Twitter @ColeeCP 
+Twitter @Coleecp
 ========================
-HiveMC: http://hivemc.com/player/colecp Youtube https://www.youtube.com/user/kittgroves 
+HiveMC: http://hivemc.com/player/colee Youtube https://www.youtube.com/user/kittgroves 
